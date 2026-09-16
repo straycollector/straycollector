@@ -7,7 +7,7 @@
 <p align="center"><img width="540" height="304" alt="tumblr_ed27691c5f7b9374de6157b4fe2610c4_920acfba_540" src="https://github.com/user-attachments/assets/35945d6d-3804-4073-8579-b8f35cc1a767" />
 <p align="center">𓃴 . 𝘵𝘸𝘦𝘯𝘵𝘺6  ˑ  𝘦𝘮𝘱𝘭𝘰𝘺𝘦𝘥  ˑ  <a href="https://willgrahamcrackers.straw.page/"> 𝘴𝘵𝘳𝘢𝘸.𝘱𝘢𝘨𝘦</a> ˑ <a href="https://willgrahamcrackers.atabook.org/"> 𝘢𝘵𝘢𝘣𝘰𝘰𝘬</a> . 𓃖 
 <p align="center">𝘪 𝘤𝘶𝘳𝘢𝘵𝘦 𝘮𝘺 𝘰𝘯𝘭𝘪𝘯𝘦 𝘦𝘹𝘱𝘦𝘳𝘪𝘦𝘯𝘤𝘦. 𝘪 𝘩𝘪𝘥𝘦 / 𝘮𝘶𝘵𝘦 𝘧𝘳𝘦𝘦𝘭𝘺.</p>
-<p align="center">𝘴𝘵𝘳𝘢𝘸 𝘣𝘦𝘴𝘵 𝘷𝘪𝘦𝘸𝘦𝘥 𝘰𝘯 𝘱𝘤. 𝘢𝘱𝘰𝘭𝘰𝘨𝘪𝘦𝘴 𝘧𝘰𝘳 𝘮𝘰𝘣𝘪𝘭𝘦 𝘶𝘴𝘦𝘳𝘴.</p>
+<p align="center">𝘣𝘦𝘴𝘵 𝘷𝘪𝘦𝘸𝘦𝘥 𝘰𝘯 𝘱𝘤. 𝘢𝘱𝘰𝘭𝘰𝘨𝘪𝘦𝘴 𝘧𝘰𝘳 𝘮𝘰𝘣𝘪𝘭𝘦 𝘶𝘴𝘦𝘳𝘴.</p>
 
 ---
 
