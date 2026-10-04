@@ -1,6 +1,6 @@
 
 
-![](https://komarev.com/ghpvc/?username=skywalkerism&color=lightgrey&style=flat-square&label=♱)
+![](https://komarev.com/ghpvc/?username=skywalkerism&color=000000&style=flat-square&label=♱)
 
 
 <p align="center">$$ \color{#a99982}{\text{" 𝘆𝗼𝘂 𝘄𝗲𝗿𝗲 𝘁𝗵𝗲 𝗯𝗲𝘁𝘁𝗲𝗿 𝗽𝗮𝗿𝘁, 𝗼𝗳 𝗲𝘃𝗲𝗿𝘆 𝗯𝗶𝘁 𝗼𝗳 𝗯𝗲𝗮𝘁𝗶𝗻𝗴 𝗵𝗲𝗮𝗿𝘁 𝘁𝗵𝗮𝘁 𝗶 𝗵𝗮𝗱. "}} $$</p><sup>
